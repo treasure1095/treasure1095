@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @treasure1095
 - 👀 I’m interested in crypto 
-- 🌱 I’m currently learning how to yrade crypto 
+- 🌱 I’m currently learning how to trade crypto 
 - 💞️ I’m looking to collaborate on ..
 - 
 - 📫 How to reach me jessejay1095@gmail.com
